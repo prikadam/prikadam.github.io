@@ -1,1 +1,0 @@
-# prikadam.github.io
